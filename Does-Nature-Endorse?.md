@@ -1,4 +1,6 @@
-Nature's Word:
+# Synchronicities in Presidential Elections
+
+## Examples of a Plausible Universe-Endorsement
 
 - Such as the bird that [landed on Bernie's podium](https://youtu.be/QAYAih_eE0o?si=NnVzQrETjngJCz6J).
 - Such as the Bald Eagle (America's national bird) [attacking Donald Trump](https://youtu.be/j1AU4qi7tWg?si=ItrWUDXTbLLN7Yw).
@@ -12,7 +14,7 @@ Nature's Word:
 
 Okay that’s all. 
 
-#
+## Meaning
 
 No wait:
 
@@ -24,7 +26,7 @@ Anyway, if a bug appeared in my apartment, I would interpret it as Nature saying
 
 Or I might interpret it as someone who sees bugs and thinks they’re terrible omens. It differs. It depends on what I want and what makes sense. 
 
-#
+## Political Manipulation via Manufactured Signs
 
 But like, one more thing: 
 
