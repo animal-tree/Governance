@@ -3,7 +3,7 @@
 ## Examples of a Plausible Universe-Endorsement
 
 - Such as the bird that [landed on Bernie's podium](https://youtu.be/QAYAih_eE0o?si=NnVzQrETjngJCz6J), early 2016.
-- Such as the Bald Eagle (America's national bird) [attacking Donald Trump](https://youtu.be/j1AU4qi7tWg?si=ItrWUDXTbLLN7Yw), 3.5 months before that.
+- Such as the Bald Eagle (America's national bird) that [attacked Donald Trump](https://youtu.be/j1AU4qi7tWg?si=ItrWUDXTbLLN7Yw), 3.5 months before that.
 - Such as Hillary Clinton being nominated and us being punished with a cartoon for a President for 4 years.
 - Such as the [Shadow corporation blackout](https://youtu.be/A7WzQRXwxos?si=tjnnnbyCtalch4g8) when Pete Buttigieg barely [claimed](https://www.youtube.com/watch?v=cTnM870CCu8) above Bernie in the Iowa delegate vote (and [not the popular vote](https://youtu.be/swJW-bVc2es?si=pNYINRyCP4Yq0qu1)), 2020.
 - Such as the fact that it was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM) for somebody to win the popular vote in Iowa, New Hampshire, [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719) and not become the party nominee.
