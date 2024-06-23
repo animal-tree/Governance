@@ -27,7 +27,7 @@ No wait:
 
 I think Nature’s meaning changes from symbol to symbol, depending on what the goal and conveyed message is. There are no strict rules “this means good”, “this means bad.” Nature achieves what Nature intends (with a big footnote answering [perhaps why suffering happens](https://github.com/animal-tree/Writing-stuff-2/blob/main/Theories/Cosmogenesis-Myth-2.md)). But interpreting that message requires intelligence and wisdom.
 
-For example, I’m someone who once had a traumatic experience involving bugs. Don’t call me bug-man, but I vowed at the end of it “Every living thing” for who I serve (or at least that’s what I meant when I was tripping on acid — don’t hold me to anything).
+For example, I’m someone who once had a traumatic experience involving bugs. Don’t call me bug-man, but I vowed at the end of it “Every living thing” for who I serve (or at least that’s what I meant when I was tripping on mushrooms — don’t hold me to anything).
 
 Anyway, if a bug appeared in my apartment, I would interpret it as Nature saying, I just debugged something. 
 
