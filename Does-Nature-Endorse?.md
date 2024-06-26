@@ -27,7 +27,7 @@
     - It perhaps also highlights the poetic but distinguishing symmetry between the two populists that ["Medicare for All"](https://youtu.be/OrQXhYcYKHc?si=Z_Rh0j8nao5fL5o7) and ["Build a wall,"](https://youtu.be/Iuc5bTfAY6U?si=S986vdZn2hVS8OWH) the policy cornerstones of each respectively, linguistically rhyme. The fact that the cornerstone of Bernie's platform just before the plague was about universal healthcare, is also synchronistic.
   - The Great Depression lasted from 3 terms of bad Republican leadership (Harding, Republican, 1921 - 1923; Coolidge, Republican, 1923 - 1929; Hoover, Republican, 1929 - 1933), due to wealth inequality, corruption, Wall Street, banks, and [a mass redistribution of wealth to the top 1%](https://www.marketwatch.com/story/its-been-almost-a-100-years-since-the-americas-1-had-so-much-wealth-2019-02-11). Those 3 terms were the Great Depression, followed by alleviation when Franklin D. Roosevelt took into office (into his 4th term, ending by his death). These 3 terms, 2016-2028 (perhaps truncated), are the Great Political Farce, and I think 2028 - at least 2032, should be the term(s) of President Bernie Sanders, when Bernie Sanders takes into office. And perhaps he can have ~4 terms.
     - Bernie was born a year before Biden, both were born during President Franklin D. Roosevelt's 3rd term, though Bernie is several decades younger in cognitive health.
-    - And in 2032, the [32-hour work week](https://www.sanders.senate.gov/wp-content/uploads/32-Hour-Workweek-Act_Fact-Sheet_FINAL.pdf) should pass.
+    - In 2032, the [32-hour work week](https://www.sanders.senate.gov/wp-content/uploads/32-Hour-Workweek-Act_Fact-Sheet_FINAL.pdf) should pass.
 
 
 Okay that’s all. 
