@@ -58,7 +58,7 @@ Okay that’s all.
 
 No wait:
 
-I think Nature’s meaning changes from symbol to symbol, depending on what the goal and conveyed message is. There are no strict rules "this means good", "this means bad." Nature achieves what Nature intends (with a big footnote answering [perhaps why suffering happens](https://github.com/slerman12/BrokenWisdoms/blob/main/Philosophy/Consciousness.md#cosmogenesis-myth)). But interpreting that message requires intelligence and wisdom.
+I think Nature’s meaning changes from symbol to symbol, depending on what the goal and conveyed message is. There are no strict rules "this means good," "this means bad." Nature achieves what Nature intends (with a big footnote answering [perhaps why suffering happens](https://github.com/slerman12/BrokenWisdoms/blob/main/Philosophy/Consciousness.md#cosmogenesis-myth)). But interpreting that message requires intelligence and wisdom.
 
 For example, I’m someone who once had a traumatic experience involving bugs. Don’t call me bug-man, but I vowed at the end of it "Every living thing" for who I serve (or at least that’s what I meant when I was tripping on mushrooms — don’t hold me to anything).
 
